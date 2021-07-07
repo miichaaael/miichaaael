@@ -5,8 +5,8 @@
 ## 🧐 About Me!
 
 - *You probably won't to know about me, and I'm pretty sure of it.*
-- *Stop asking me with a stupid questions !*
-- *If you want to know more about me, no, you will not !*
+- *nah.*
+- *nah.*
 - *Okay, BYE !*  
 <br>
 
